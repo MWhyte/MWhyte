@@ -1,1 +1,1 @@
-![](https://assets.amuniversal.com/a021a5f0a905013416c3005056a9545d)
+![](https://bigmemes.funnyjunk.com/thumbnails/comments/Only+father+ted+gif+i+have+_00cbfd695ec0f3180186644cc1929034.gif)
